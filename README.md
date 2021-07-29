@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @whitfieldsdad! I study hackers for a living.
+- 💞️ I’m looking to collaborate on wild and exciting projects within the purple team engineering space!
